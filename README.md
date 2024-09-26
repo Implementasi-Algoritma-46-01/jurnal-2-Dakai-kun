@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Dzaka Alif Nurhakim
 
-NIM : 
+NIM : 607062400023
 
 ## Instruksi
 
